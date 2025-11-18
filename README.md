@@ -1,4 +1,4 @@
 # NEW-
 JUST TRYING
 <br>
-trying pangy
+trying kuch ni
